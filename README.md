@@ -1,1 +1,1 @@
-# paddle-ocr
+https://www.youtube.com/watch?v=t5xwQguk9XU
